@@ -1,2 +1,1 @@
-# Interplanetary-Excursions
-sign up for epic mars expedition!
+privacy policy for hobby hub
